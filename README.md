@@ -1,0 +1,2 @@
+# Sinethemba
+I am young computer science graduate who have got ambitions in IT world. I have got keen leadership and communication skills which was enhanced by my previous job as a computer science laboratory assistant together with my educational experience. I am looking forward to meet new challenges that will require me to combine my work and qualification experience to help me solve those challenges
